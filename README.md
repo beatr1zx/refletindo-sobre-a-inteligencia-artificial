@@ -1,1 +1,0 @@
-# refletindo-sobre-a-inteligencia-artificial
